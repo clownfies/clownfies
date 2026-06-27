@@ -1,5 +1,4 @@
-## ig bro 
-
+## STILL WIP IDK HOW TO DO TS ANYWAYS ASHP IS PEAK
 <!--
 **clownfies/clownfies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
