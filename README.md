@@ -63,7 +63,7 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 
 <br/>
 
-[![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](clownfies.atabook.org) &emsp; [![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://clownfies.straw.page) &emsp; [![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://en.pronouns.page/@merisz) &emsp;
+[![ata](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](clownfies.atabook.org) &emsp; [![strawpage](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://clownfies.straw.page) &emsp; [![en.prns](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://en.pronouns.page/@merisz) &emsp;
 
 
 &emsp;
