@@ -71,3 +71,13 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 &emsp;
 &emsp;
 &emsp;
+
+<div align="center">
+  
+<img width="640" height="640" alt="ไม่มีชื่อ 263_20260720162344" src="https://github.com/user-attachments/assets/c9d4dc3d-4137-4a0b-8b82-a111c076094a" />
+
+&emsp;
+&emsp;
+&emsp;
+&emsp;
+&emsp;
