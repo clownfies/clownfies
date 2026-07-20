@@ -1,18 +1,60 @@
-## STILL WIP IDK HOW TO DO TS ANYWAYS ASHP IS PEAK
-<!--
-**clownfies/clownfies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 <div align="center">
 
-[![Github] (https://img.shields.io/badge/github__profile-view-counter?style=flat&logoColor=pink&label=and%20my%20legacy%20will%20endure&labelColor=pink&color=FFFFFF&cacheSeconds=88&link=https%3A%2F%2Fgithub.com%2Fclownfies
+![Profile Views](https://komarev.com/ghpvc/?username=clownfies&style=flat-square&color=fcdee2&ffffff&label=and+my+legacy+will+endure)
 
-Here are some ideas to get you started:
+&nbsp;
+&nbsp;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+  
+<img width="332" height="47" alt="IMG_0012" src="https://github.com/user-attachments/assets/ca522318-37d7-42ff-94d4-6f8ce40ba730" />
+
+&nbsp;
+&nbsp;
+
+<div align="center">
+  
+<img width="640" height="640" alt="ไม่มีชื่อ 263_20260720162344" src="https://github.com/user-attachments/assets/c9d4dc3d-4137-4a0b-8b82-a111c076094a" />
+       
+&nbsp;
+     
+<div align="center">
+  
+$\small{\textsf{ac : TamNhu7109 on x}}$
+
+&nbsp;
+
+<div align="center">
+
+$\color{red}{\textsf{I&emsp;knowmy&emsp;love&emsp;is&emsp;different&emsp;from&emsp;yours.&emsp;but&emsp;it&emsp;was&emsp;love&emsp;too&emsp;!&emsp; }}$ &nbsp; <img width="20" height="20" alt="IMG_0011" src="https://github.com/user-attachments/assets/d016a02d-a244-497f-8ccd-e7c14fd192dc">
+
+$\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}$ &emsp; $\color{purple}{\text{his}}$ &emsp; $\color{red}{\text{face&emsp;you wouldn't be able to judge me either.}}$
+
+
+
+<div align="left">
+
+&nbsp;
+&nbsp;
+&nbsp;
+&emsp;
+&emsp;
+&emsp;
+&emsp;
+&emsp;
+
+<br/>
+
+&emsp;&emsp;&emsp;&emsp;&emsp; $\color{pink}{\textsf{merisz}}$ &nbsp; $\color{white}{\text{or}}$ &nbsp; $\color{pink}{\text{mer mer}}$ &emsp; $\color{white}{\textsf{Ი ᰍ ݃ ݁ᣟ݂}}$ <br/>
+<br/> &emsp;&emsp; $\color{pink}{\textsf{17}}$  &emsp; <img width="20" height="20" alt="IMG_0013" src="https://github.com/user-attachments/assets/4b625948-efd0-4904-bca6-1a36b422305a" /> &emsp; $\color{pink}{\textsf{any prns}}$ &emsp; $\color{pink}{\textsf{but&nbsp;prefer&nbsp;she&nbsp;/&nbsp;they&nbsp;}}$ <br/>
+
+<div align="left">
+
+&emsp;&emsp;&emsp; ${\color{#FF8FAB}always &emsp; c&nbsp;*&nbsp;h &emsp; welcome}$ &emsp; $${\color{#F25278}w2i}$$
+
+<div align="right">
+
+<br/>
+
+[![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](clownfies.atabook.org) &emsp; [![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://clownfies.straw.page) &emsp; [![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://en.pronouns.page/@merisz) &emsp;
