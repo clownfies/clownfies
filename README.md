@@ -1,6 +1,7 @@
 ## STILL WIP IDK HOW TO DO TS ANYWAYS ASHP IS PEAK
 <!--
 **clownfies/clownfies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+https://img.shields.io/badge/github__profile-view-counter?style=flat&logoColor=pink&label=and%20my%20legacy%20will%20endure&labelColor=pink&color=FFFFFF&cacheSeconds=88&link=https%3A%2F%2Fgithub.com%2Fclownfies
 
 Here are some ideas to get you started:
 
