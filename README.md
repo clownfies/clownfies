@@ -1,4 +1,10 @@
 
+&emsp;
+&emsp;
+&emsp;
+&emsp;
+&emsp;
+
 <div align="center">
 
 ![Profile Views](https://komarev.com/ghpvc/?username=clownfies&style=flat-square&color=fcdee2&ffffff&label=and+my+legacy+will+endure)
@@ -58,3 +64,10 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 <br/>
 
 [![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](clownfies.atabook.org) &emsp; [![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://clownfies.straw.page) &emsp; [![_](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://en.pronouns.page/@merisz) &emsp;
+
+
+&emsp;
+&emsp;
+&emsp;
+&emsp;
+&emsp;
