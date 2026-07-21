@@ -33,7 +33,7 @@ $\small{\textsf{ac : TamNhu7109 on x}}$
 
 <div align="center">
 
-$\color{red}{\textsf{I&emsp;knowmy&emsp;love&emsp;is&emsp;different&emsp;from&emsp;yours.&emsp;but&emsp;it&emsp;was&emsp;love&emsp;too&emsp;!&emsp; }}$ &nbsp; <img width="20" height="20" alt="IMG_0011" src="https://github.com/user-attachments/assets/d016a02d-a244-497f-8ccd-e7c14fd192dc">
+$\color{red}{\textsf{I&emsp;know&emsp;my&emsp;love&emsp;is&emsp;different&emsp;from&emsp;yours.&emsp;but&emsp;it&emsp;was&emsp;love&emsp;too&emsp;!&emsp; }}$ &nbsp; <img width="20" height="20" alt="IMG_0011" src="https://github.com/user-attachments/assets/d016a02d-a244-497f-8ccd-e7c14fd192dc">
 
 $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}$ &emsp; $\color{purple}{\text{his}}$ &emsp; $\color{red}{\text{face&emsp;you wouldn't be able to judge me either.}}$
 
