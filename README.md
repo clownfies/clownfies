@@ -55,6 +55,7 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 &emsp;&emsp;&emsp;&emsp;&emsp; $\color{pink}{\textsf{merisz}}$ &nbsp; $\color{white}{\text{or}}$ &nbsp; $\color{pink}{\text{mer mer}}$ &emsp; $\color{white}{\textsf{Ი ᰍ ݃ ݁ᣟ݂}}$ <br/>
 <br/> &emsp;&emsp; $\color{pink}{\textsf{17}}$  &emsp; <img width="20" height="20" alt="IMG_0013" src="https://github.com/user-attachments/assets/4b625948-efd0-4904-bca6-1a36b422305a" /> &emsp; $\color{pink}{\textsf{any prns}}$ &emsp; $\color{pink}{\textsf{but&nbsp;prefer&nbsp;she&nbsp;/&nbsp;they&nbsp;}}$ <br/>
 
+
 <div align="left">
 
 &emsp;&emsp;&emsp; ${\color{#FF8FAB}always &emsp; c&nbsp;*&nbsp;h &emsp; welcome}$ &emsp; $${\color{#F25278}w2i}$$
@@ -63,7 +64,15 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 
 <br/>
 
-[![ata](https://cdn.discordapp.com/attachments/1509708556331389121/1528967853502628024/265_20260721103134.png?ex=6a6039c7&is=6a5ee847&hm=7c0670bd8f0dee7d082956ed30734b72a3e725eadaedadf503559363a7fc8d9b&)](clownfies.atabook.org) &emsp; [![strawpage](https://cdn.discordapp.com/attachments/1509708556331389121/1528967861513490432/265_20260721103148.png?ex=6a6039c9&is=6a5ee849&hm=2bdb5a6d0cf2cb302e8b60e17e13f2f8a55c3accc40adf1a61d136196ee95ba1&)](https://clownfies.straw.page) &emsp; [![en.prns](https://cdn.discordapp.com/attachments/1509708556331389121/1528967867343568987/265_20260721103213.png?ex=6a6039ca&is=6a5ee84a&hm=9ed4ad23561ac7808afce59410b4209655f4f186e6b07548a8182d1704a54928&)](https://en.pronouns.page/@merisz) &emsp;
+&emsp;
+&emsp;
+&emsp;
+&emsp;
+
+<div align="right">
+  
+[<img src="https://cdn.discordapp.com/attachments/1509708556331389121/1528967853502628024/265_20260721103134.png?ex=6a6039c7&is=6a5ee847&hm=7c0670bd8f0dee7d082956ed30734b72a3e725eadaedadf503559363a7fc8d9b&" width="250">](https://clownfies.atabook.org)[<img src="https://cdn.discordapp.com/attachments/1509708556331389121/1528967861513490432/265_20260721103148.png?ex=6a6039c9&is=6a5ee849&hm=2bdb5a6d0cf2cb302e8b60e17e13f2f8a55c3accc40adf1a61d136196ee95ba1&" width="250">](https://clownfies.straw.page)[<img src="https://cdn.discordapp.com/attachments/1509708556331389121/1528967867343568987/265_20260721103213.png?ex=6a6039ca&is=6a5ee84a&hm=9ed4ad23561ac7808afce59410b4209655f4f186e6b07548a8182d1704a54928&" width="250">](https://en.pronouns.page/@merisz)
+
 
 
 &emsp;
