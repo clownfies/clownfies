@@ -55,15 +55,9 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 &emsp;&emsp;&emsp;&emsp;&emsp; $\color{pink}{\textsf{merisz}}$ &nbsp; $\color{white}{\text{or}}$ &nbsp; $\color{pink}{\text{mer mer}}$ &emsp; $\color{white}{\textsf{Ი ᰍ ݃ ݁ᣟ݂}}$ <br/>
 <br/> &emsp;&emsp; $\color{pink}{\textsf{17}}$  &emsp; <img width="20" height="20" alt="IMG_0013" src="https://github.com/user-attachments/assets/4b625948-efd0-4904-bca6-1a36b422305a" /> &emsp; $\color{pink}{\textsf{any prns}}$ &emsp; $\color{pink}{\textsf{but&nbsp;prefer&nbsp;she&nbsp;/&nbsp;they&nbsp;}}$ <br/>
 
-
 <div align="left">
 
 &emsp;&emsp;&emsp; ${\color{#FF8FAB}always &emsp; c&nbsp;*&nbsp;h &emsp; welcome}$ &emsp; $${\color{#F25278}w2i}$$
-
-&emsp;
-&emsp;
-&emsp;
-&emsp;
 
 <div align="right">
   
