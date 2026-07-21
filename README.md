@@ -63,7 +63,7 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 
 <br/>
 
-[![ata](https://cdn.discordapp.com/attachments/1509708556331389121/1528966772257198170/264_20260720183345.png?ex=6a6038c5&is=6a5ee745&hm=b85d7732b51121b5b5585bfe0542ef0aa04cd7356acd7818341b8caa4c7656f9&)](clownfies.atabook.org) &emsp; [![strawpage](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://clownfies.straw.page) &emsp; [![en.prns](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://en.pronouns.page/@merisz) &emsp;
+[![ata](https://cdn.discordapp.com/attachments/1509708556331389121/1528967853502628024/265_20260721103134.png?ex=6a6039c7&is=6a5ee847&hm=7c0670bd8f0dee7d082956ed30734b72a3e725eadaedadf503559363a7fc8d9b&)](clownfies.atabook.org) &emsp; [![strawpage](https://cdn.discordapp.com/attachments/1509708556331389121/1528967861513490432/265_20260721103148.png?ex=6a6039c9&is=6a5ee849&hm=2bdb5a6d0cf2cb302e8b60e17e13f2f8a55c3accc40adf1a61d136196ee95ba1&)](https://clownfies.straw.page) &emsp; [![en.prns](https://cdn.discordapp.com/attachments/1509708556331389121/1528967867343568987/265_20260721103213.png?ex=6a6039ca&is=6a5ee84a&hm=9ed4ad23561ac7808afce59410b4209655f4f186e6b07548a8182d1704a54928&)](https://en.pronouns.page/@merisz) &emsp;
 
 
 &emsp;
