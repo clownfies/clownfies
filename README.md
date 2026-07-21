@@ -63,7 +63,7 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 
 <br/>
 
-[![ata](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](clownfies.atabook.org) &emsp; [![strawpage](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://clownfies.straw.page) &emsp; [![en.prns](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://en.pronouns.page/@merisz) &emsp;
+[![ata](https://cdn.jsdelivr.net/gh/free-whiteboard-online/Free-Erasorio-Alternative-for-Collaborative-Design@1b0f6a536c35dce3afe2bffd53af1aba144e7379/uploads/2026-07-21T03-20-56-202Z-8vin1fczi.png)](clownfies.atabook.org) &emsp; [![strawpage](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://clownfies.straw.page) &emsp; [![en.prns](https://kommodo.ai/i/Fl7vcRYT0fm6nweKX5Yi)](https://en.pronouns.page/@merisz) &emsp;
 
 
 &emsp;
