@@ -75,6 +75,7 @@ $\color{red}{\textsf{who could really blame me ?&emsp;if you'd see the look on}}
 <br/>
 <br/>
 
+<img width="1280" height="910" alt="ไม่มีชื่อ 266_20260721120705" src="https://github.com/user-attachments/assets/e4df68c0-a3f9-4909-804a-f214f189a493" />
 
 &emsp;
 &emsp;
